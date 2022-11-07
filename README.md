@@ -25,3 +25,15 @@
 - Then today i did everything he wanted and it was time for paying, but clearly he didn't pay, he blocked me as reward of fixing his shits
 
 ![](https://i.imgur.com/HeWf1oR.png)
+
+## MajorHax#6017 - 880228359479635979
+
+Accepted PayPal payments for https://keyauth.cc for a few months
+
+Lied and said PayPal was on hold for several months, when we finally removed his account from Shoppy, he went ghost.
+
+Had a friend reach out to him on https://cracked.io and he read the message, viewed his profile, and then changed his username thinking that would stop a scam report against him 🤣
+
+he was banned, lost $100 forum subscription he bought, and a good chunk of the money was recovered as I instructed customers to chargeback him 
+
+https://cracked.io/Thread-Scam-report-for-1039-USD-against-MajorHax
