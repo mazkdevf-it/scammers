@@ -44,6 +44,9 @@ https://cracked.io/Thread-Scam-report-for-1039-USD-against-MajorHax
 
 ## Fnoberz#0001 - 943374631644045363
 
+#### Other Accounts
+- Slackes#0001
+
 His website: https://fnoberz.com/, Is bs 850+ **"SATISFIED CUSTOMERS"** more like **"SCAMMED CUSTOMERS"** 😳😨
 
 Have been reported by multiple people that he is selling legit but then got scammed
